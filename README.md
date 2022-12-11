@@ -1,1 +1,1 @@
-# rsschool-cv
+https://shepelewwww.github.io/rsschool-cv/cv
